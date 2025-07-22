@@ -1,1 +1,1 @@
-bitlife unblocked 76 will take you to explore mysterious tombs deep underground. You will be transformed into a tomb to explore the mysterious underground.
+Bitlife Unblocked 76 is a popular simulation game that gives players many options to shape their own lives. The unblocked version allows you to correct previous wrong decisions and establish your ideal life.
